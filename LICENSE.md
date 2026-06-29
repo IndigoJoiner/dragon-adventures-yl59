@@ -1,4 +1,4 @@
-#  
+#  premium Script for dragon adventures is the best dragon adventures Script, featuring one-hit kill and speed. Safe and powerful for all your needs.
 
 
 
